@@ -1,1 +1,1 @@
-My favorite lake is: Lake Placid
+My favorite lake is: Chapel Pond
