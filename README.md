@@ -1,1 +1,1 @@
-My favorite lake is: Loon Lake
+My favorite lake is: Lake Placid
