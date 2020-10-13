@@ -1,1 +1,1 @@
-My favorite lake is: Lake George
+My favorite lake is: Rainbow Lake
